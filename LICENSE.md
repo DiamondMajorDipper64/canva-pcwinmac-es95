@@ -1,4 +1,4 @@
-# 
+# Élite Canva plugins para Mac OS | Premium Canva plugins para PC Windows. Con modos de fusión de capas y tabla de contenidos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
